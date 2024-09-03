@@ -1,3 +1,5 @@
+
+
 Extreme Shark Adventure is a daring and adrenaline-fueled tour company that caters to thrill-seekers and adventure enthusiasts.
 We offer near-death experiences by allowing our clients to swim with sharks in their natural habitat. 
 Buckle up, we’re about to explore the business side of this heart-pounding venture.
