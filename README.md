@@ -31,3 +31,22 @@ Legal and Liability Issues: Ensure waivers and insurance cover all possible scen
 
 Public Perception: Address the misconception that swimming with sharks is reckless. 
 Emphasize safety protocols.
+
+Project Justification: Adventure Tourism
+Global Growth
+Adventure tourism is one of the segments that has experienced significant recent growth, despite economic turbulence. In fact, it is estimated to generate around €230 billion annually, making it one of the most dynamic sectors.
+
+Definition of Adventure Tourism
+According to the World Tourism Organization (UNWTO), adventure tourism encompasses trips that include at least two of the following three elements: physical activity, natural environment, and cultural immersion. This ranges from extreme activities to expeditions.
+
+Economic Impact
+Approximately 65.6% of the total cost of an adventure tourism trip remains in the visited destination. This means that destinations significantly benefit from this type of tourism. Additionally, the average expenditure of an adventure tourist is approximately €2,600, and these trips typically last about a week.
+
+Upward Trend
+Adventure parks and thrilling experiences are in high demand. Travelers seek unique activities and adrenaline rushes, which has driven continuous growth in this sector. According to UNWTO data, there were nearly 965 million international tourist arrivals worldwide in 2022. While this represented an increase from the previous year, we are still below pre-pandemic figures.
+
+Job Creation and GDP Contribution
+Adventure tourism contributes to the creation of over 290 million jobs, both directly and indirectly. Its contribution to the global GDP exceeded seven trillion US dollars in the last year.
+
+Luxury Adventure Travel
+High-end adventure tourism has shown robust growth in recent years. Its revenues increased by 5% to 8% annually over the past six years, outpacing traditional tourism growth.
