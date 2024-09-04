@@ -1,4 +1,4 @@
-
+https://github.com/user-attachments/assets/902ad81c-6a9f-40b5-9b1f-66b407d0693b
 
 Extreme Shark Adventure is a daring and adrenaline-fueled tour company that caters to thrill-seekers and adventure enthusiasts.
 We offer near-death experiences by allowing our clients to swim with sharks in their natural habitat. 
