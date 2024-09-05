@@ -12,9 +12,13 @@ People crave the rush of adrenaline, and what better way to achieve it than by c
 
 Business Model
 Tour Packages:
-The Great White Plunge: A heart-pounding encounter with great white sharks off the coast of South Africa.
-Tiger Shark Tango: Swim alongside tiger sharks in the warm waters of the Bahamas.
-Hammerhead Hideaway: Explore the underwater world with hammerhead sharks near the Galápagos Islands.
+Introducing Our Most Extreme Product: Xtreme Shark Swimming Adventure
+Are you ready for an extraordinary experience? Our Xtreme Shark Swimming Adventure is designed for the truly daring. We’ve carefully crafted an itinerary that takes you to the most dangerous zones, all while swimming alongside the fiercest sharks. How do we do it?
+
+Thorough Research:
+We’ve meticulously studied shark attacks since the year 2000. This has allowed us to pinpoint the most active areas and the times of year when encountering aggressive sharks is most likely.
+High Odds:
+Our adventurers will know that they’re facing the highest probabilities of encountering a shark up close while swimming with them.
 
 Safety First:
 We prioritize safety above all else. 
